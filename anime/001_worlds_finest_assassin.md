@@ -16,4 +16,4 @@ As far as the supporting cast goes you have the parents who might as well be car
 
 This show is a disaster. Even if there was something redeemable I wouldn’t be able to due to how degenerate it is.
 
-Rating: No
+Rating: 👎
